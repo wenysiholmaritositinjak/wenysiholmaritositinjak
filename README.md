@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **wenysihol@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1qpkwAx-yGpEKNkwRZQa97VNRcvLj5-9W/view?usp=sharing](https://drive.google.com/file/d/1qpkwAx-yGpEKNkwRZQa97VNRcvLj5-9W/view?usp=sharing)
+- 📄 Know about my experiences [http://tinyurl.com/Resume-Weny-Sitinjak](http://tinyurl.com/Resume-Weny-Sitinjak)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
